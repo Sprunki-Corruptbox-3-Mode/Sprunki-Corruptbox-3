@@ -1,40 +1,39 @@
 # [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/)
 
-免费在线玩 [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod，释放无尽的游戏创造力。
+Play [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod online for free and unleash endless gaming creativity.
 
-进入 [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod 的世界，可以激发您创造力的尖端音乐创作平台，凭借独特的功能和可自定义的选项，[Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mods 可让您以前所未有的方式探索流行的 Sprunki Incredibox 游戏。使用 [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod 释放您的艺术潜力。
+Enter the world of [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod, a cutting-edge music creation platform that ignites your creativity. With unique features and customizable options, [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mods lets you explore the popular Sprunki Incredibox game in unprecedented ways. Use [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) Mod to unleash your artistic potential.
 
-## 为什么要玩 [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/)？
-![Sprunki Corruptbox 3 角色展示](/images/sprunkicorruptbox3.png)
+## Why Play [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/)?
+![Sprunki Corruptbox 3 Characters](/images/sprunkicorruptbox3.png)
 
-### 无限创意可能性
-你玩的不只止是游戏也是你正在创作自己的战斗歌曲！借助无限的声音组合、混合搭配角色声音，创作出诡异而有力的且独有的作品，让每次游戏都充满新鲜感和刺激感。
+### Infinite Creative Possibilities
+You're not just playing a game - you're creating your own battle songs! With unlimited sound combinations and character voice mixing, create eerie yet powerful unique compositions that make every game fresh and exciting.
 
-### 探索扭曲的世界
-游戏构建了一个充满黑暗氛围和腐败元素的独特世界观。这个世界充斥着静态干扰和视觉扭曲，采用了独特的像素化美术风格来营造诡异的氛围。玩家在探索过程中会遇到各种充满故障效果的场景，每个区域都蕴含着不同的视听体验。这种扭曲的世界设计不仅带来视觉上的冲击，还通过声音效果增强了游戏的沉浸感。
+### Explore a Twisted World
+The game builds a unique world view filled with dark atmosphere and corrupt elements. This world is full of static interference and visual distortion, using a unique pixelated art style to create an eerie atmosphere. Players will encounter various glitch-filled scenes during exploration, with each area containing different audiovisual experiences. This twisted world design not only brings visual impact but also enhances game immersion through sound effects.
 
-### 角色选择
-游戏提供了一系列来自被感染的 Sprunki 团队的可选角色，每个角色都经过战争主题的重新设计，具有独特的外观和能力特征。这些角色不仅在视觉上展现出扭曲和腐败的特点，更重要的是他们都拥有独特的声音属性，能够创造出不同风格的音乐效果。玩家需要深入了解每个角色的特性，才能在战斗中充分发挥他们的音乐潜力。
+### Character Selection
+The game offers a series of selectable characters from the infected Sprunki team, each redesigned with war themes and unique appearances and abilities. These characters not only display twisted and corrupt visual features, but more importantly, they possess unique sound attributes capable of creating different styles of musical effects. Players need to deeply understand each character's characteristics to fully utilize their musical potential in battle.
 
-### 音乐创作
-作为游戏的核心玩法机制，音乐创作系统让玩家能够通过组合不同的声音元素来创作战斗配乐。玩家不仅可以混合角色的独特音效，还能通过节奏和旋律的变化来影响战斗的进程。游戏提供了专业的音乐创作工具，支持玩家编排复杂的音乐序列，同时通过解锁新的音效和组合来丰富创作的可能性。这种将音乐创作与战斗gameplay相结合的设计，为玩家带来了独特的游戏体验。
+### Music Creation
+As the game's core gameplay mechanism, the music creation system allows players to compose battle soundtracks by combining different sound elements. Players can not only mix characters' unique sound effects but also influence battle progress through rhythm and melody changes. The game provides professional music creation tools, supporting players in arranging complex music sequences while enriching creative possibilities through unlocking new sound effects and combinations. This design combining music creation with battle gameplay brings players a unique gaming experience.
 
-## 游戏指南
+## Game Guide
 
-### 如何玩游戏
-游戏采用循序渐进的学习曲线，新手可以从简单的曲调开始，随着熟练度提升逐步增加复杂性。玩家需要通过战略性地布置单位来创作音乐，每个单位的位置都会影响最终的声音效果。值得注意的是，游戏特别强调通过实验来发现隐藏的声音模式，玩家可以尝试不同的单位组合来解锁秘密阵型，这些都会为战斗带来独特的优势。
+### How to Play
+The game uses a progressive learning curve, where beginners can start with simple melodies and gradually increase complexity as their proficiency improves. Players need to strategically place units to create music, with each unit's position affecting the final sound effect. Notably, the game emphasizes experimenting to discover hidden sound patterns, where players can try different unit combinations to unlock secret formations that bring unique advantages to battle.
 
-### 加入社区
-游戏提供了一个活跃的社区平台([Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/))，玩家可以在这里分享自己创作的音乐作品，向有经验的玩家学习技巧。社区定期举办每周挑战赛，玩家可以争夺"最佳腐化战斗交响曲"的称号。特别值得一提的是，社区还组织特殊活动，让玩家组队组建大型腐化管弦乐队，参与者可以获得独特的奖励。
+### Join the Community
+The game provides an active community platform ([Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/)), where players can share their musical creations and learn techniques from experienced players. The community regularly hosts weekly challenges where players can compete for the title of "Best Corrupted Battle Symphony." Of special note are the community's special events that let players team up to form large corrupted orchestras, with participants receiving unique rewards.
 
-## 特色功能与进阶指南
+## Features and Advanced Guide
 
-### 主要功能
-游戏核心功能包括操纵腐败能量创造音效、创作由怪异节拍和静电组成的音乐、以战略性方式混合军队单位。独特的战争主题乐趣让玩家可以在战斗中创作音乐，游戏环境充满了既可怕又奇妙美丽的氛围。每次游戏体验都能发现新的内容，无论是硬核玩家还是音乐爱好者都能找到乐趣。
+### Main Features
+Core game features include manipulating corrupt energy to create sound effects, composing music from weird beats and static, and strategically mixing army units. The unique war theme fun lets players create music during battle, with a game environment full of both scary and wonderfully beautiful atmospheres. Each gaming experience reveals new content, offering fun for both hardcore players and music enthusiasts.
 
-### 如何成为专业玩家
-要在游戏中取得优异成绩，玩家需要掌握几个关键技巧：深入研究单元组合以发现秘密音乐组合效果，保持流畅的节拍以最大化声音攻击力，积极参与每周挑战来学习顶级玩家的技巧。持续的练习和实验是提升技能的关键，随着经验的积累，玩家能够创作出越来越优秀的腐败战斗配乐。
+### How to Become a Pro
+To achieve excellence in the game, players need to master several key techniques: deeply study unit combinations to discover secret music combination effects, maintain smooth rhythms to maximize sound attack power, and actively participate in weekly challenges to learn from top players. Continuous practice and experimentation are key to improving skills, and with accumulated experience, players can create increasingly excellent corrupted battle music.
 
-## 开始你的旅程
-游戏采用无需下载的网页版设计，玩家只需访问 [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/) 就能立即开始游戏。作为一款结合了节奏游戏和恐怖元素的独特作品，它特别适合喜欢创新玩法的玩家。游戏提供了组建腐败管弦乐队、使用声波战斗、与全球玩家互动等丰富内容，加上定期更新的新模组和社区活动，确保了持续的游戏乐趣。
-
+## Start Your Journey
+With a no-download web version design, players can start playing immediately by visiting [Sprunki Corruptbox 3](https://sprunkicorruptbox3.com/). As a unique work combining rhythm game and horror elements, it's especially suitable for players who like innovative gameplay. The game offers rich content including forming corrupted orchestras, fighting with sound waves, and interacting with global players, plus regular updates with new mods and community events ensure continued gaming enjoyment.
